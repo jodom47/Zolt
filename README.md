@@ -19,5 +19,3 @@ We're in Beta, so your feedback is 🔑 — help us fine-tune the beat! 🛠
 Because with Zolt & Pookie Zolt, it’s not just music — it’s a movement. 🎵
 
 #ZoltBeta #PookieZolt #MusicReimagined #StreamDownloadVibe
-
-fuck of Spotify
